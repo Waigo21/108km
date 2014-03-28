@@ -1,4 +1,4 @@
-108km Stuido
+108km Studio
 =====
 
 108km Open Minds
